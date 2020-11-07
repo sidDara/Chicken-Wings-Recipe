@@ -1,0 +1,1 @@
+You need: Chicken Wings, Salt, Pepper, Spices, and some Yogurt.

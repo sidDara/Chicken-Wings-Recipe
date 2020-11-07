@@ -1,0 +1,1 @@
+First, make a solution for the chicken wings to be marinated. You can do this by adding some Salt, Pepper, and spices into the yogurt. Secondly marinate the Chicken Wings into the solution. Wait 1 hour. Then, dip it into some eggs and roll it on some breadcrumbs. Thirdly, deep fry it in some oil and take it out after it is golden brown. Lastly, Enjoy!
